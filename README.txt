@@ -1,0 +1,1 @@
+extract gradlekompres agar lengkap
